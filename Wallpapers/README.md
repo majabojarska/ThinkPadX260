@@ -1,0 +1,1 @@
+Source: [Exploding X260 Wallpaper](https://www.reddit.com/r/thinkpad/comments/8lwe9l/exploding_x260_wallpaper/)
